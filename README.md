@@ -1,1 +1,1 @@
-Ayawka)
+Yerzhanova Ayazhan
